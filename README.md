@@ -1,24 +1,8 @@
-<p align="center">
-  <img width="460" height="300" src="https://github.com/twotimegf/twotimegf/blob/de13157f2bbd2f4b7a441f74478aa9feb9f9db26/18282c1e061252db47d52e824ba6a262cec9098f_Likes___Tumblr.gif">
-</p>
+
 <p align="center">
 ♡ ～('▽^)  <a href="https://husband.atabook.org/">新book</a> ⑅ ݁ᚐ <a href="https://lukedued.straw.page/">①</a> <a href="https://lukedued.straw.page/">②</a> ᧆ𓈒 ۫ ּ⠀｡✩e
 <p align="center">
-  <img width="460" height="300" src="https://github.com/twotimegf/twotimegf/blob/8b4557e6385f8c7c6cfa1f4687bfbf047621455f/aaaaaa.png">
-</p>
-⧓
+  <img width="400" height="200" src="https://github.com/twotimegf/seosibe/blob/d0887c9fc70ca21c4f61a85a3b8ad6229d977a73/polarcub-dani_Polarcub_Dani_GIF___Polarcub_Dani_Polarcub_Youtube____________________________GIF________.gif">
+</p>   <p align="center">
 <p align="center">
-still a wip ~~ hi ... hi ill make this cute later just a heads up for people who wanna interact with me i guess
-<p align="center">
-no covering me or basically ripping off my shit
-<p align="center">
-inspo is whatever if you just ask but i prefer if you didnt take any inspo
-<p align="center">
-basic dni i block very freely i guess dni doubles, sometimes ill hide azuretime ponies no shade
-<p align="center">
-im ok with c*h and all that stuff i really dont mind, even if im with friends
-<p align="center">
-always w2i if i dont respond, im offtab sometimes and sometimes not!
-　　　　　　　　　(๑ᵔ⤙ᵔ๑)
-<p align="center">
-  wip lul🍀🍭
+Dis me Btw. ⧓ DO NOT COPY AND INSPO OF ME YOU WILL DIE
