@@ -3,7 +3,7 @@
 </p>
 
 <p align="center">
-  <img width="460" height="300" src="https://github.com/twotimegf/twotimegf/blob/803b0f0e0cd36cbdc0d34c4175425caf1c190d82/aaaaaa.png">
+  <img width="460" height="300" src="https://github.com/twotimegf/twotimegf/blob/bed99a071fc50592729ff1f87e56555c607009c9/sCUGC94T5T0Te-ezgif.com-video-to-gif-converter.gif">
 </p>
 
 <p align="center">
