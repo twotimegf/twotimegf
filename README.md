@@ -11,4 +11,4 @@ im ok with c*h and all that stuff i really dont mind, even if im with friends
 always w2i if i dont respond, im offtab sometimes and sometimes not!
 　　　　　　　　　(๑ᵔ⤙ᵔ๑)
 
-![](https://github.com/twotimegf/twotimegf/blob/803b0f0e0cd36cbdc0d34c4175425caf1c190d82/aaaaaa.png|width=100)
+![](https://github.com/twotimegf/twotimegf/blob/803b0f0e0cd36cbdc0d34c4175425caf1c190d82/aaaaaa.png)
