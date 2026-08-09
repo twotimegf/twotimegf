@@ -11,4 +11,4 @@ im ok with c*h and all that stuff i really dont mind, even if im with friends
 always w2i if i dont respond, im offtab sometimes and sometimes not!
 　　　　　　　　　(๑ᵔ⤙ᵔ๑)
 
-![](https://github.com/twotimegf/twotimegf/blob/a54534d5bf2c75dd186b18d6aa3fd388fc126810/ezgif.com-video-to-gif-converter%20(1).gif)
+![](https://github.com/twotimegf/twotimegf/blob/803b0f0e0cd36cbdc0d34c4175425caf1c190d82/aaaaaa.png)
