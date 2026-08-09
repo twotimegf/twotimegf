@@ -1,13 +1,14 @@
 <p align="center">
   <img width="460" height="300" src="https://github.com/twotimegf/twotimegf/blob/de13157f2bbd2f4b7a441f74478aa9feb9f9db26/18282c1e061252db47d52e824ba6a262cec9098f_Likes___Tumblr.gif">
 </p>
-
+<p align="center">
+♡ ～('▽^)  <a href="https://husband.atabook.org/">新book</a> ⑅ ݁ᚐ <a href="https://lukedued.straw.page/">①</a> <a href="https://lukedued.straw.page/">②</a> ᧆ𓈒 ۫ ּ⠀｡✩e
 <p align="center">
   <img width="460" height="300" src="https://github.com/twotimegf/twotimegf/blob/8b4557e6385f8c7c6cfa1f4687bfbf047621455f/aaaaaa.png">
 </p>
-
+⧓
 <p align="center">
-hi ill make this cute later just a heads up for people who wanna interact with me i guess
+still a wip ~~ hi ... hi ill make this cute later just a heads up for people who wanna interact with me i guess
 <p align="center">
 no covering me or basically ripping off my shit
 <p align="center">
